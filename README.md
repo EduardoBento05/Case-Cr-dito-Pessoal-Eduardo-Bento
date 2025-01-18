@@ -1,1 +1,1 @@
-# Case-Cr-dito-Pessoal-Eduardo-Bento
+# Case-Credito-Pessoal-Eduardo-Bento
